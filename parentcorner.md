@@ -1,4 +1,4 @@
-[![Image](http://3.bp.blogspot.com/-wJsH8-VAjZY/VOaYhovCG9I/AAAAAAAAEDE/1-Z2cFBw3cs/s1600/cheering%2Bthem%2Bon.JPG)](http://3.bp.blogspot.com/-wJsH8-VAjZY/VOaYhovCG9I/AAAAAAAAEDE/1-Z2cFBw3cs/s1600/cheering%2Bthem%2Bon.JPG)
+![Parents Cheering](http://3.bp.blogspot.com/-wJsH8-VAjZY/VOaYhovCG9I/AAAAAAAAEDE/1-Z2cFBw3cs/s1600/cheering%2Bthem%2Bon.JPG)
 
 We have tried to provide you with everything you need to know about Saline's Rowing Team, Saline Crew. You will find answers to frequently asked questions, board members, volunteer opportunities and needs. You can also check here for crew clothing requirements and transportation for both the regattas and practices.  
 
@@ -448,9 +448,10 @@ Row Hard Hornets!!
 
 * * *
 
-![food tent and trailer](http://www.salinecrew.org/images/images/foodtent.jpg) 
+![food tent and trailer](http://3.bp.blogspot.com/-xn3iEjoIXYk/VOu0t0jXizI/AAAAAAAAEEE/GWFbKj02WiE/s1600/foodtent.jpg)  
+*food tent and trailer*
 
-"food tent and trailer"Everything a Parent and Rower needs to know about food at Regattas:
+Everything a Parent and Rower needs to know about food at Regattas:
 
   1.  Every rower must pay a specified amount each season to cover food and drinks for all rowers as part of their dues. Family members and guests pay an additional “optional” fee which is established each season. This information is presented at the Parent / Rower meeting.  
   [Download family and guest regatta food form here&gt;&gt; ](http://www.salinecrew.org/images/FORMS/2014%20Spring%20Rowing%20Food%20Form.pdf)  
@@ -461,7 +462,7 @@ Row Hard Hornets!!
   3.  Rowers and family members are served breakfast, lunch and snacks at each regatta.  
   
   4.  Food is served 'tail-gate' style, with breakfast served as soon as possible upon arrival and set-up.  Lunch is served at approximately 11:30, with rowers eating at various times depending on when they row.    
-  ![ ](http://www.salinecrew.org/images/images/Parents-at-Food-tent.jpg)
+  ![Parents at the food tent](http://4.bp.blogspot.com/-sX_w0pSxxig/VOu0su85CxI/AAAAAAAAED8/UpuDUFlW1kM/s1600/Parents-at-Food-tent.jpg)
 
   5.  We have the following equipment we use at each regatta:
 
@@ -477,7 +478,7 @@ Row Hard Hornets!!
   6.  All rower family members are responsible for set-up of the tents before the regatta.  
   
   7.  All rower family members are responsible for clean-up of site(s), take down of tents and loading the equipment trailer.    
-  ![ ](http://www.salinecrew.org/images/images/Pam.JPG)
+  ![cooking](http://1.bp.blogspot.com/-jAVsUeLmqOI/VOu0rv18k1I/AAAAAAAAED0/kgfPgXYDnQU/s1600/Pam.JPG)
 
   8.  We are in need of many volunteers to help with the regatta food. Volunteer opportunities will be explained and / or requested at the Parent / Rower meeting each season. The following is a general outline of regatta food volunteer opportunities ([REFER TO: “Volunteer Positions & Responsibilities” page for further details:](http://www.salinecrew.org/?module=Page&pageID=34)
 
