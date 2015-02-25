@@ -83,7 +83,7 @@ Team fundraisers help to purchase equipment including boats, boat parts, outboar
 
 #### Practices
 
-Practices take place immediately after school, as well as several hours after school, and on Saturday's. Practices are at Ford Lake in Ypsilanti. [Download map&gt;&gt;](http://www.salinecrew.org/images/downloads/DirectionsToFordLake.pdf)
+Practices take place immediately after school, as well as several hours after school, and on Saturday's. Practices are at Ford Lake in Ypsilanti. [Download map>>](https://github.com/mike-ward/salinecrew/blob/master/downloads/DirectionsToFordLake.pdf?raw=true)
 
 #### Schedules
 

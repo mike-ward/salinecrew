@@ -12,21 +12,21 @@ _The following information is for general purposes only and subject to change ea
 
 1. **Winter Conditioning/ Highly encouraged** – Typically begins the second week in January. Parents and / or rowers are expected to provide their own transportation. 
     
-    - **Erging** – Location: Liberty School Practices generally run 3 days per week. [View the practice schedule&gt;&gt;](http://www.salinecrew.org/?module=Events&categoryID=4)
+    - **Erging** – Location: Liberty School Practices generally run 3 days per week. 
     
-    - **Weight & Fitness Training** – Location: Saline High School Practices generally run 1 to 2 days per week.[View the practice schedule&gt;&gt;](http://www.salinecrew.org/?module=Events&categoryID=4)
+    - **Weight & Fitness Training** – Location: Saline High School Practices generally run 1 to 2 days per week.
 
 2. **Mandatory “In-Season” Practices** – Fall Season: Begins just after school begins through early-November. Spring Season: Begins in March and ends in May/June. Rowers will carpool to practices as assigned at the beginning of the season based on parent transportation consent forms. 
     
-    - **Erging**– Location: Liberty School (until weather permits on-the-water practices at Ford Lake). Practices are Mon- Thurs after school and Saturday morning 9am, when there is not a Regatta. [View the practice schedule&gt;&gt;](http://www.salinecrew.org/?module=Events&categoryID=4)
+    - **Erging**– Location: Liberty School (until weather permits on-the-water practices at Ford Lake). Practices are Mon- Thurs after school and Saturday morning 9am, when there is not a Regatta.
     
-    - **Weight & Fitness Training** – Location: Saline High School (until weather permits on-the-water practices at Ford Lake). Practices generally run 1 to 2 days per week after school. [View the practice schedule&gt;&gt;](http://www.salinecrew.org/?module=Events&categoryID=4)
+    - **Weight & Fitness Training** – Location: Saline High School (until weather permits on-the-water practices at Ford Lake). Practices generally run 1 to 2 days per week after school.
     
-    - **Rowing**- Location: Ford Lake – once weather permits, all weekly practices will be on the water at the lake. Mon- Thurs after school and Saturday morning, 9am, when there is not a Regatta. During inclement weather, practices will be held at Liberty School.[View the practice schedule&gt;&gt;](http://www.salinecrew.org/?module=Events&categoryID=4)
+    - **Rowing**- Location: Ford Lake – once weather permits, all weekly practices will be on the water at the lake. Mon- Thurs after school and Saturday morning, 9am, when there is not a Regatta. During inclement weather, practices will be held at Liberty School.
     
     - **Regatta's**
 
-There are generally four to five regatta's each season. You can read about ["How to Enjoy A Regatta"](#enjoy) as written by Kathy Cook, crew alumni parent. You can also link to [view the regatta schedule&gt;&gt;](http://www.salinecrew.org/?module=Events&categoryID=1)  
+There are generally four to five regatta's each season. You can read about ["How to Enjoy A Regatta"](#enjoy) as written by Kathy Cook, crew alumni parent. You can also link to [view the regatta schedule>>](http://salinerowingclub.blogspot.com/2015/02/regatta-schedule.html)  
   
   
 [(Top)](#)
@@ -55,7 +55,7 @@ For a description of each position, please see [the Bylaws](http://www.salinecr
   - Hire a Crew/Rent a Rower -[Stacy Wellings](mailto:stacywellings@gmail.com)  
   - Website Maintenance - [Mike Ward](mailto:mike@wardfam.org)  
   - Food Trailer Towing / Transportation - VOLUNTEER NEEDED  
-  - Boat Trailer Towing / Transportation - [Coach Matt ](mailto:boatrepair@comcast.net)/ [Doug Wellings](mailto:dougwellings@gmail.com)  
+  - Boat Trailer Towing / Transportation - [Coach Matt](mailto:boatrepair@comcast.net)/ [Doug Wellings](mailto:dougwellings@gmail.com)  
   - Publicity liaison -  
   - Banquet -[ Food Committee](mailto:lornagibson@yahoo.com)  
   - Boat Maintenance & Repair - [Coach Matt](mailto:boatrepair@comcast.net)  
@@ -86,7 +86,7 @@ Multiple Rower Discount (rowers from the same family):
   
 Please follow [this link](http://www.payschools.com/cat.asp?id=C740BA23A6504DACBD07791491B63467) to pay your fees online.  
   
-Questions: Jennifer’s email: [Treasurer](mailto:jennjohnson21@hotmail.com)   
+Questions: [Julie Campbell, Treasurer](mailto:Julie.Campbell@hotmail.com)   
   
 **ADDITIONAL FEE:** Practice Transportation Fee of $75 Applies to "In-Season" Practices Only. if applicable*
 
@@ -94,7 +94,7 @@ Questions: Jennifer’s email: [Treasurer](mailto:jennjohnson21@hotmail.com) 
 
 The coaches will organize the "in-season" practice transportation car pools. They will assign rowers to specific cars and distribute funds to assigned drivers. Transportation Fee $75.00:** Payable to CASH** (Please give the cash and/or check to Coach Matt)  
   
-_NOTE: We know this is not an inexpensive sport, so we have a program to help the rowers and their families offset the Club fees. Please see the [Rent-A-Rower](http://www.salinecrew.org/?module=Page&pageID=31) page for more information. The rowers get credit for each hour they work, and it can make a significant difference in the out-of-pocket costs for the fees._  
+_NOTE: We know this is not an inexpensive sport, so we have a program to help the rowers and their families offset the Club fees. Please see the [Rent-A-Rower](http://salinerowingclub.blogspot.com/p/fund-raising.html#rent) page for more information. The rowers get credit for each hour they work, and it can make a significant difference in the out-of-pocket costs for the fees._  
   
 [(Top)](#)
 <a name="clothing"></a>  
@@ -107,7 +107,7 @@ The only required clothing item is the Saline Unisuit by JL Racing. The rowers a
   
 There are numerous other clothing items available.  
   
-[Please go the the Forms/Downloads tab for ordering information.&gt;&gt;](http://www.salinecrew.org/?module=Page&pageID=7)  
+[Ordering information>>](http://www.salinecrew.org/?module=Page&pageID=7)  
 
 ![unisuits](https://3.bp.blogspot.com/-Pc2DxiDGIC8/VOpqmvwpplI/AAAAAAAAEDk/-XFtX3t_Fa8/s400/unisuit.jpg)
 
@@ -119,7 +119,7 @@ There are numerous other clothing items available.
 * * *
 
 #### How much does crew cost?
-It costs $700.00 to join the team. Plus travel costs for practices & regattas. [Get the specifics &gt;&gt;](http://www.salinecrew.org/?module=Page&pageID=42)   
+It costs $700.00 to join the team. Plus travel costs for practices & regattas. [Get the specifics >>](http://salinerowingclub.blogspot.com/p/parents-corner.html#registration)   
   
 
 #### Why does it cost so much?
@@ -127,7 +127,7 @@ Crew is a club sport so it receives no funding from the School athletic budget. 
   
 
 #### Are there scholarships
-There are some limited scholarship funds available. Check with the[Coaches.](http://www.salinecrew.org/?module=Page&pageID=10)  
+There are some limited scholarship funds available. Check with the [Coaches.](http://salinerowingclub.blogspot.com/p/contact-us.html)  
   
 
 #### What safety rules apply?
@@ -158,10 +158,10 @@ After school on weekdays or early morning on Saturdays.
 On Ford Lake at the Boathouse site.    
 
 #### How do you get to practice?
-We carpool over and most drivers are students. [Get more specifics&gt;&gt;](http://www.salinecrew.org/?module=Page&pageID=16)  
+We carpool over and most drivers are students. [Get more specifics >>](http://salinerowingclub.blogspot.com/p/parents-corner.html#transporation)  
   
 #### Where are the regattas?
-In Michigan and Ohio.[ Check out the Regatta schedule&gt;&gt;](http://www.salinecrew.org/?module=Page&pageID=94)  
+In Michigan and Ohio. [Check out the Regatta schedule >>](http://salinerowingclub.blogspot.com/2015/02/regatta-schedule.html)  
   
 #### What equipment do I need?
 The only required item is the team uni. We recommend that you dress in layers and wear warm clothing such as under armour and/or spandex (surprisingly comfortable) under your workout clothing.  
@@ -171,7 +171,6 @@ For your first season, we provide a tshirt. In subsequent seasons, you need to b
 
 #### Who are the coaches?
 Matt LeBlanc, Head Coach [boatrepair@comcast.net](mailto:boatrepair@comcast.net)  
-[](mailto:boatrepair@comcast.net)  
 
 #### Do I have to be a certain height?
 There are no height minimums, although taller athletes may have a mechanical advantage. There is also a position called coxswain who is critical to the boat’s success because they are responsible for steering and executing race strategy. The coxswain tends to be shorter and lighter than the other athletes rowing the boat.  
@@ -186,7 +185,7 @@ Yes, our food coordinator will plan enough for athletes, parents and siblings. T
   
 
 #### Who runs the team?  
-[The Coaches, Board of Directors and all of the parent volunteers.](http://www.salinecrew.org/?module=Page&pageID=15)  
+[The Coaches, Board of Directors and all of the parent volunteers.](http://salinerowingclub.blogspot.com/p/contact-us.html)  
   
 #### Are there bylaws?
 [Yes](http://www.salinecrew.org/images/FORMS/Saline%20Rowing%20Club%20Bylaws%20update%205%2020%202014.pdf)  
@@ -208,9 +207,9 @@ Communication regarding regatta transportation is sent via email a week prior.
   
 Transportation coordination is a very important role and requires a lot of cooperation and communication from parents to be sure all of rowers have transportation. Please be sure to do your part.  
   
-Practice Transportation - contact [Carole Pfeiffer](mailto:petecarole@comcast.net)  
+Practice Transportation - contact [Carol Torssell](catorssell@att.net)  
   
-Regatta Transportation - contact[ Lynne Friman](mailto:lynnefriman@comcast.net)  
+Regatta Transportation - contact [Carol Torssell](catorssell@att.net)  
   
   
 [(Top)](#)
@@ -307,7 +306,7 @@ Spring 2015 Season
 #### Team Photographer & End of Season Video - Open
 
   - Takes pictures at regattas
-  - Works with webmaster and media rep  
+  - Works with web master and media rep  
   - Puts together end of the season video and DVD  
   
 
@@ -454,8 +453,8 @@ Row Hard Hornets!!
 Everything a Parent and Rower needs to know about food at Regattas:
 
   1.  Every rower must pay a specified amount each season to cover food and drinks for all rowers as part of their dues. Family members and guests pay an additional “optional” fee which is established each season. This information is presented at the Parent / Rower meeting.  
-  [Download family and guest regatta food form here&gt;&gt; ](http://www.salinecrew.org/images/FORMS/2014%20Spring%20Rowing%20Food%20Form.pdf)  
-  [Regatta food Menu here&gt;&gt;](http://www.salinecrew.org/images/FORMS/spring_2014_menu.pdf)
+  [Download family and guest regatta food form here >>](http://www.salinecrew.org/images/FORMS/2014%20Spring%20Rowing%20Food%20Form.pdf)  
+  [Regatta food Menu here >>](http://www.salinecrew.org/images/FORMS/spring_2014_menu.pdf)
 
   2.  We serve approximately 80-100+ people each regatta, depending on number of rowers.  We serve approximately 150 people at each banquet.  
   
@@ -480,7 +479,7 @@ Everything a Parent and Rower needs to know about food at Regattas:
   7.  All rower family members are responsible for clean-up of site(s), take down of tents and loading the equipment trailer.    
   ![cooking](http://1.bp.blogspot.com/-jAVsUeLmqOI/VOu0rv18k1I/AAAAAAAAED0/kgfPgXYDnQU/s1600/Pam.JPG)
 
-  8.  We are in need of many volunteers to help with the regatta food. Volunteer opportunities will be explained and / or requested at the Parent / Rower meeting each season. The following is a general outline of regatta food volunteer opportunities ([REFER TO: “Volunteer Positions & Responsibilities” page for further details:](http://www.salinecrew.org/?module=Page&pageID=34)
+  8.  We are in need of many volunteers to help with the regatta food. Volunteer opportunities will be explained and / or requested at the Parent / Rower meeting each season. The following is a general outline of regatta food volunteer opportunities ([REFER TO: “Volunteer Positions & Responsibilities” page for further details:](http://salinerowingclub.blogspot.com/p/parents-corner.html#volunteer)
 
   - Food Coordinator – Lorna Gibson
   - Shopper – Lorna Gibson

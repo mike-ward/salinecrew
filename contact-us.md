@@ -15,13 +15,13 @@
 
 #### Volunteers (frequently called)
 
-  -  [Regatta Food](mailto:lornasgibson@yahoo.com)   
-  -  [Regatta Transportation](mailto:catorssell@gmail.com)  
-  -  [Fundraising](mailto:jaball50@gmail.com)   
-  -  [Crew Clothing ](mailto:shellyfox322@yahoo.com)  
-  -  [Website](mailto:mike@wardfam.org)   
-  -  [Treasurer](mailto:julie.campbell@hotmail.com)   
-  -  [Rent-A-Rower/Hire A Crew](mailto:stacywellings@gmail.com)
+  -  [Regatta Food - Lorna Gibson](mailto:lornasgibson@yahoo.com)   
+  -  [Regatta Transportation - Carol Torssell](mailto:catorssell@gmail.com)  
+  -  [Fundraising - Jeff Ball](mailto:jaball50@gmail.com)   
+  -  [Crew Clothing - Shelly Fox](mailto:shellyfox322@yahoo.com)  
+  -  [Website - Mike Ward](mailto:mike@wardfam.org)   
+  -  [Treasurer - Julie Campbell](mailto:julie.campbell@hotmail.com)   
+  -  [Rent-A-Rower/Hire A Crew - Stacy Wellings](mailto:stacywellings@gmail.com)
 
 
 #### Mailing Address
