@@ -2,17 +2,19 @@
 
 * * *
 
-![girls 8](http://2.bp.blogspot.com/-83qR_O-00N8/VOzBH50LWOI/AAAAAAAAEE4/b9Utar87BbQ/s400/2013_girls8.JPG)
+<iframe src="http://player.vimeo.com/video/43685328?title=0&amp;byline=0&amp;portrait=0" frameborder="0" width="450" height="250"></iframe>
 
 The Saline High School Crew Club is a club sport for both men and women. The club was founded in 2004 and is managed by a board of directors, comprised of parents, coaches and team captains.
 
-We have two competitive rowing seasons: Fall and Spring. The Fall season consists of longer races (like cross country) and the Spring is Sprint Season (like track). Most new rowers join in the Fall to get experience, learn to row, and prepare for the head to head competition in the Spring.  The team is self-funded in part by the parents, the student-rowers themselves, external support, and fundraisers such as the Great Gatsby Regatta. Although this is a club team, the team rows against varsity teams of other high schools and rowers can earn their Varsity letter. The club does not have cuts, and no prior rowing experience or knowledge is expected.
+We have two competitive rowing seasons: Fall and Spring. The Fall season consists of longer races (like cross country) and the Spring is Sprint Season (like track). Most new rowers join in the Fall to get experience, learn to row, and prepare for the head to head competition in the Spring.
+
+The team is self-funded in part by the parents, the student-rowers themselves, external support, and fundraisers such as the Great Gatsby Regatta. Although this is a club team, the team rows against varsity teams of other high schools and rowers can earn their Varsity letter. The club does not have cuts, and no prior rowing experience or knowledge is expected.
 
 #### Interested?
 
 Click [here](#join) if you are interested in joining the team. You will be glad you did!
 
-#### Rower's Reasons To Join Crew
+#### Rower's Top 10 Reasons To Join Crew
 
   1.  Crew tans are really cooool.
   2.  It's one sport that you can do sitting down, going backwards.
@@ -58,8 +60,9 @@ Fees are payable at the beginning of the season. Seasonal dues pay for coaches s
 
 **NOTE:**  Program Registration Fees for a rowers FIRST SEASON are $325.
 
-**Practice Transportation Fees in Season only. $75.00** if applicable*   
-*Parents and/or rowers who are providing their own transportation to and from practice do not need to pay the transportation fee.*
+**Practice Transportation Fees in Season only. $75.00** if applicable*
+
+_* Parents and/or rowers who are providing their own transportation to and from practice do not need to pay the transportation fee._
 
 The coaches will organize the practice transportation car pools. They will assign rowers to specific cars and distribute funds to assigned drivers.  
 Transportation Fee $75.00: **Payable to CASH**
@@ -89,9 +92,9 @@ Practices take place immediately after school, as well as several hours after sc
 
 #### Transportation to Practices
 
-Parents must participate in the carpool to drive students to practice unless they give permission to their student to be driven by student drivers. Be prepared to sign up to drive at least one day a week when you attend the rower/parent meeting. Parents must sign the Transportation and Authorization form.
+Parents must participate in the carpool to drive students to practice unless they give permission to their student to be driven by student drivers. Be prepared to sign up to drive at least one day a week when you attend the rower/parent meeting. Parents must sign the Transportation and Authorization form*.
 
-*Parents and/or rowers who are providing transportation to and from practice do not need to contribute to gas.  If you are in the team carpools, there is a additional fee as outlined in the fee schedule.
+_* Parents and/or rowers who are providing transportation to and from practice do not need to contribute to gas.  If you are in the team carpools, there is a additional fee as outlined in the fee schedule._
 
 #### Safety
 
@@ -125,18 +128,15 @@ If you have additional inquiries, please attend the March meeting or e-mail [She
 
 ![Paddle](http://2.bp.blogspot.com/-S3bz-wRIpAM/VOzCoXKx4fI/AAAAAAAAEFU/4xSquWFaAX8/s400/oar_hornet_gupy.jpg)
 
-Saline High Crew began as the result of a student promoting rowing to other high school students. The transfer student had recently moved from a Grand Rapids high school with an established rowing program and was interested in continuing to participate in this water sport. Saline was fortunate to have 2 teachers that had university coaching and rowing experience that were able to organize and lead a new program. The team began with a parent board of 5 volunteers, 14 
-
-student athletes and the generosity of a Lenawee County family that donated usage of their property, launch & motor, and home on Sand Lake for the team to use. Additionally, the Wyandotte Boat Club hauled 2 boats from their Detroit River facility and lent their equipment during the first season of this new program.   
+Saline High Crew began as the result of a student promoting rowing to other high school students. The transfer student had recently moved from a Grand Rapids high school with an established rowing program and was interested in continuing to participate in this water sport. Saline was fortunate to have 2 teachers that had university coaching and rowing experience that were able to organize and lead a new program. The team began with a parent board of 5 volunteers, 14 student athletes and the generosity of a Lenawee County family that donated usage of their property, launch & motor, and home on Sand Lake for the team to use. Additionally, the Wyandotte Boat Club hauled 2 boats from their Detroit River facility and lent their equipment during the first season of this new program.   
   
-The Community Education program, under the leadership of Scot Graden, provided guidance in writing bylaws and obtaining the necessary liability and equipment insurance coverage for the fledging program.  
+The Community Education program, under the leadership of Scot Graden, provided guidance in writing bylaws and obtaining the necessary liability and equipment insurance coverage for the fledging program.
+
 The following year, an anonymous donor provided a substantial interest-free loan to enable the program to purchase a trailer to haul the boats and the teams’ first used boats. Annual golf fundraisers have also added appreciably to the teams’ revenues. The team also initiated two “Learn to Row” events at Argo Pond near the Ann Arbor Rowing Club, to introduce Saline families to rowing.  
   
 The team has grown to over 50 athletes participating during each spring season and approximately 45 athletes participating during each fall season. The Team sponsored the first high School regatta at Ford Lake during Fall, 2007, introducing Pioneer & Huron’s Crew teams to this local waterway.   
   
-Both the girls and boys team have medaled at several Midwest regional regattas (Columbus, Fort Wayne, and Cincinnati) and the Lightweight boys 4+ boat competed 
-
-at the American Schoolboy Championship in Tennessee in Spring, 2008, finishing 5th nationally. The team has been fortunate to retain excellent coaches and alumni student coaches to assist with the program.
+Both the girls and boys team have medaled at several Midwest regional regattas (Columbus, Fort Wayne, and Cincinnati) and the Lightweight boys 4+ boat competed at the American Schoolboy Championship in Tennessee in Spring, 2008, finishing 5th nationally. The team has been fortunate to retain excellent coaches and alumni student coaches to assist with the program.
 
 [(Top)](#)
 <a name="mission"></a>
@@ -149,6 +149,4 @@ The Saline High School Rowing Team has been created to promote the sport of rowi
 
 #### Saline Crew Vision
 
-The Vision of the Saline High School Rowing Team is to provide the opportunity for any interested student to learn to compete in the sport of rowing. The rowing program will promote a healthy life-style, good sportsmanship, 
-
-teamwork and self-confidence. All members are expected to follow the team rules, obey the safety guidelines and support the necessary logistics in order to create a successful athletic program.
+The Vision of the Saline High School Rowing Team is to provide the opportunity for any interested student to learn to compete in the sport of rowing. The rowing program will promote a healthy life-style, good sportsmanship, teamwork and self-confidence. All members are expected to follow the team rules, obey the safety guidelines and support the necessary logistics in order to create a successful athletic program.
