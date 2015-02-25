@@ -28,9 +28,7 @@ Click [here](#join) if you are interested in joining the team. You will be gl
       ![ejecting crab](http://2.bp.blogspot.com/-GxC5qQjwODA/VOzBH1H7x-I/AAAAAAAAEE8/Rj4sVT3gjW0/s1600/crab.jpg)  
       *ejecting crab*  
   9.  Next time you ride in any kind of boat, you can babble on and on using technical boat terms and people will think you're an accomplished seaman.
-  10. Being in a crew race is the same as having 8 people run a 
-
-7 minute 2k -- in step!
+  10. Being in a crew race is the same as having 8 people run a 7 minute 2k -- in step!
 
 [(Top)](#)
 <a name="join"></a>
@@ -69,7 +67,8 @@ Transportation Fee $75.00: **Payable to CASH**
 
 **NOTE: Dues checks should be made payable to Saline Area Schools/CREW**
 
-Send payment for registration to:   
+Send payment for registration to:
+
 Scott Carter, Treasurer  
 9200 Pine Hill Court  
 Saline, MI 48176   
@@ -128,7 +127,9 @@ If you have additional inquiries, please attend the March meeting or e-mail [She
 
 ![Paddle](http://2.bp.blogspot.com/-S3bz-wRIpAM/VOzCoXKx4fI/AAAAAAAAEFU/4xSquWFaAX8/s400/oar_hornet_gupy.jpg)
 
-Saline High Crew began as the result of a student promoting rowing to other high school students. The transfer student had recently moved from a Grand Rapids high school with an established rowing program and was interested in continuing to participate in this water sport. Saline was fortunate to have 2 teachers that had university coaching and rowing experience that were able to organize and lead a new program. The team began with a parent board of 5 volunteers, 14 student athletes and the generosity of a Lenawee County family that donated usage of their property, launch & motor, and home on Sand Lake for the team to use. Additionally, the Wyandotte Boat Club hauled 2 boats from their Detroit River facility and lent their equipment during the first season of this new program.   
+Saline High Crew began as the result of a student promoting rowing to other high school students. The transfer student had recently moved from a Grand Rapids high school with an established rowing program and was interested in continuing to participate in this water sport. Saline was fortunate to have 2 teachers that had university coaching and rowing experience that were able to organize and lead a new program.
+
+The team began with a parent board of 5 volunteers, 14 student athletes and the generosity of a Lenawee County family that donated usage of their property, launch & motor, and home on Sand Lake for the team to use. Additionally, the Wyandotte Boat Club hauled 2 boats from their Detroit River facility and lent their equipment during the first season of this new program.   
   
 The Community Education program, under the leadership of Scot Graden, provided guidance in writing bylaws and obtaining the necessary liability and equipment insurance coverage for the fledging program.
 
