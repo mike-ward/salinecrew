@@ -16,7 +16,7 @@ Click [here](#join) if you are interested in joining the team. You will be gl
 
 #### Rower's Top 10 Reasons To Join Crew
 
-  1.  Crew tans are really cooool.
+  1.  Crew tans are really *cooool*.
   2.  It's one sport that you can do sitting down, going backwards.
   3.  You'll have a new love for water...no matter how cold it is.
   4.  It's a total body workout that will get you in shape for bikini weather (Speedo for the guys).
@@ -44,11 +44,11 @@ Follow the instructions below to join the Saline High School Crew for the season
 To become a member of the Saline Crew, you must:
 
   1. Complete the swim test.
-  2. Complete all the[ forms](http://www.salinecrew.org/?module=Page&pageID=7) on the Crew Forms page. Forms must be turned in no later than the first day of practice. 
-  3. Attend the mandatory Rower/Parent meeting in the Saline High School Commons. Bring your checkbook and your calendar to write down practice and regatta dates and times. This would also be a good time to turn in the [forms](http://www.salinecrew.org/?module=Page&pageID=7) you filled out in step 2.
+  2. Complete all the[ forms](http://salinerowingclub.blogspot.com/p/forms-maps-downloads.html) on the Crew Forms page. Forms must be turned in no later than the first day of practice. 
+  3. Attend the mandatory Rower/Parent meeting in the Saline High School Commons. Bring your checkbook and your calendar to write down practice and regatta dates and times. This would also be a good time to turn in the forms you filled out in step 2.
   4. Pay fees for the season.
   5. Order the Crew Unisuit  (required for Regatta's)
-  6. Attend the first day of practice. Check the calendar and/or schedule [online](http://www.salinecrew.org/?module=Events).
+  6. Attend the first day of practice. Check the calendar and/or schedule [online](http://salinerowingclub.blogspot.com/p/parents-corner.html#practice).
 
 #### Fees
 
@@ -73,13 +73,13 @@ Scott Carter, Treasurer
 9200 Pine Hill Court  
 Saline, MI 48176   
 Questions: Scott’s telephone number: 734 429-8228  
-Email: [Treasurer](mailto:Scott.Carter@Heidtman.com)
+Email: <mailto:Julie.Campbell@hotmail.com>
 
-If the cost of joining the team is the only thing holding you back, please contact [Shelley Wolff, President](mailto:shelley_wolff@msn.com) to discuss possible solutions.
+If the cost of joining the team is the only thing holding you back, please contact <mailto:christopherdfrick@gmail.com> to discuss possible solutions.
 
 #### Fundraisers
 
-Team fundraisers help to purchase equipment including boats, boat parts, outboard motors, trailers, and oars. All team members are expected to participate in team fundraisers throughout the season. The team also sponsors fundraisers that rowers can participate in to apply to their seasonal dues. [Learn more&gt;&gt;](http://www.salinecrew.org/?module=Page&pageID=23)
+Team fundraisers help to purchase equipment including boats, boat parts, outboard motors, trailers, and oars. All team members are expected to participate in team fundraisers throughout the season. The team also sponsors fundraisers that rowers can participate in to apply to their seasonal dues. [Learn more>>](http://salinerowingclub.blogspot.com/p/fund-raising.html)
 
 #### Practices
 
@@ -87,7 +87,7 @@ Practices take place immediately after school, as well as several hours after sc
 
 #### Schedules
 
-[Practice Schedule&gt;&gt;](http://www.salinecrew.org/?module=Events&categoryID=4)
+[Practice Schedule>>](http://salinerowingclub.blogspot.com)
 
 #### Transportation to Practices
 
@@ -115,7 +115,7 @@ Saline Crew follows all safety guidelines as established by the US Rowing Associ
 
 #### Contact us if you have questions
 
-If you have additional inquiries, please attend the March meeting or e-mail [Shelley Wolff, President](mailto:shelley_wolff@msn.com)
+If you have additional inquiries, please attend the March meeting or e-mail <mailto:christopherdfrick@gmail.com>
 
 
 [(Top)](#)
